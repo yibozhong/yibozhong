@@ -1,4 +1,4 @@
 ## 👋
 
-- 🌱 I’m currently learning foundation models.
-- 📫 How to reach me: yibozhong657@gmail.com
+- I like efficiency.
+- Mail: yibozhong657@gmail.com
